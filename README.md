@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Skyboss-ux
 - 👀 I’m interested in ...exploring power generation 
 - 🌱 I’m currently learning ...Electrical Engineering Technology 
-- 💞️ I’m looking to collaborate on ...solar system 
+- 💞️ I’m looking to collaborate... with companies capable of producing electrical energy 
 - 📫 How to reach me ...WhatsApp +233506596978
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
